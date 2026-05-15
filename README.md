@@ -1,2 +1,2 @@
 # websiteku
-ini web affiliate pertamuku masih sangat jelek
+ini web affiliate pertamaku masih sangat jelek
